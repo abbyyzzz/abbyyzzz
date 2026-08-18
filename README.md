@@ -4,6 +4,6 @@
 ![GIF](Untitled11_20260817225651.png)
 ![BLINKIE](.p) 
 ![BLINKIE](.p) 
-![2ndmainimage](Untitled4_20260817005546.png) 
-![Strawpage](.p) 
+![2ndmainimage](Untitled11_20260817230518.png) 
+![Ⓢⓣⓡⓐⓦ](.p) 
 WIP OK
