@@ -1,5 +1,5 @@
 ![Mainimage](Untitled7_20260817003212.png) 
 ![GIF](.p) ![GIF](.p) 
     ![GIF](.p) 
-![2ndmainimage](.p) 
+![2ndmainimage](Untitled4_20260817005546.png) 
 ![Strawpage](.p) 
