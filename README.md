@@ -5,5 +5,5 @@
 ![BLINKIE](blinkiesCafe-w9.gif) 
 ![BLINKIE](blinkiesCafe-Dx.gif) 
 ![2ndmainimage](Untitled11_20260817230518.png) 
-![Ⓢⓣⓡⓐⓦ](.p) 
+![Ⓢⓣⓡⓐⓦ](https://abbyyzzzlovesreitatoritsuka.straw.page) 
 WIP OK
