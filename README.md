@@ -2,7 +2,7 @@
        ⋆. 𐙚 ˚ ᶜᵃᵗᶜʰ ᶜᵃᵗᶜʰ - ʸᵉⁿᵃ
 
 
-| Center Image Title |
+| ₐᵦᵦᵧᵧᵧ |
 | :---: |
 | ![Mainimage](Untitled15_20260820213012.png)
 
