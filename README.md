@@ -4,7 +4,7 @@
 
 <p float="left">
   <img src="https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled15_20260820213012.png" width="49%" />
-  <img src=".pngpath/to/Untitled15_20260820231801.png" width="49%" />
+  <img src="Untitled15_20260820231801.png" width="49%" />
 </p>
 
 
