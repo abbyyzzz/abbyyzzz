@@ -1,9 +1,13 @@
 ![lace/border](Untitled13_20260819192223.png) 
-<p float="left">
-  <img src="Untitled4_20260819192859.png" width="49%" />
-  <img src="Untitled12_20260820200540.png" width="49%" />
-</p>
+
+       ⋆. 𐙚 ˚ ᶜᵃᵗᶜʰ ᶜᵃᵗᶜʰ - ʸᵉⁿᵃ
+
+![Mainimage](Untitled4_20260819192859.png) 
  
-[straw](https://abbyyzzzlovesreitatoritsuka.straw.page) 
+[ˢᵗʳᵃʷᵖᵃᵍᵉ](https://abbyyzzzlovesreitatoritsuka.straw.page) 
+
+
+        !!! ʸᵏ ʷʰᵃᵗ ʰᵉ ˢᵃᶦᵈ ᵗᵒ ᵐᵉ  ? 
+
 ![lace/border](Untitled13_20260819192329.png) 
 WIP OK
