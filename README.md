@@ -1,5 +1,9 @@
 ![lace/border](Untitled13_20260819192223.png) 
-![image](Untitled4_20260819192859.png) 
+<p float="left">
+  <img src="https://example.com" width="49%" />
+  <img src="https://example.com" width="49%" />
+</p>
+ 
 [straw](https://abbyyzzzlovesreitatoritsuka.straw.page) 
 ![lace/border](Untitled13_20260819192329.png) 
 WIP OK
