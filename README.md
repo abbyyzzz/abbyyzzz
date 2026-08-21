@@ -1,9 +1,9 @@
 
        ⋆. 𐙚 ˚ ᶜᵃᵗᶜʰ ᶜᵃᵗᶜʰ - ʸᵉⁿᵃ
 
-![Mainimage](Untitled4_20260819192859.png) 
+![Mainimage](Untitled15_20260820210919.png) 
 
  
-## <p align="center">[ˢᵗʳᵃʷᵖᵃᵖᵍᵉ](https://abbyyzzzlovesreitatoritsuka.straw.page)
+## <p align="center">[ˢᵗʳᵃʷ](https://abbyyzzzlovesreitatoritsuka.straw.page)
 
         !!! ʸᵏ ʷʰᵃᵗ ʰᵉ ˢᵃᶦᵈ ᵗᵒ ᵐᵉ  ? 
