@@ -3,8 +3,8 @@
 
 
 <p float="left">
-  <img src="Untitled15_20260820233502.png" width="49%" />
-  <img src="Untitled15_20260820233600.png" width="49%" />
+  <img src="https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled15_20260820233502.png" width="49%" />
+  <img src="https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled15_20260820233600.png" width="49%" />
 </p>
 
 
