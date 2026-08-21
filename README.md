@@ -6,4 +6,4 @@
  
 ## <p align="center">[ˢᵗʳᵃʷ](https://abbyyzzzlovesreitatoritsuka.straw.page)
 
-        !!! ʸᵏ ʷʰᵃᵗ ʰᵉ ˢᵃᶦᵈ ᵗᵒ ᵐᵉ  ? 
+    @pt-hall-of-media ʳᵉᶦᵗᵃ ᵗᵒʳᶦᵗˢᵘᵏᵃ
