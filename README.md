@@ -1,7 +1,7 @@
 ![lace/border](Untitled13_20260819192223.png) 
 <p float="left">
-  <img src="https://example.com" width="49%" />
-  <img src="https://example.com" width="49%" />
+  <img src="Untitled4_20260819192859.png" width="49%" />
+  <img src="Untitled12_20260820200540.png" width="49%" />
 </p>
  
 [straw](https://abbyyzzzlovesreitatoritsuka.straw.page) 
