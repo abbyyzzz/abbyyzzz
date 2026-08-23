@@ -17,7 +17,7 @@
 
 
 
-## <p align= "center">  ⋆
+## <p align= "center">
 
 
     @pt-hall-of-media ʳᵉᶦᵗᵃ ᵗᵒʳᶦᵗˢᵘᵏᵃ
