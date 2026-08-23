@@ -12,7 +12,7 @@
 </p>
 
 
-## <p align="center">[ˢᵗʳᵃʷ](https://abbyyzzzlovesreitatoritsuka.straw.page) [•](saikiyougoing.peepee) [ᵃᵗᵃ](https://abbyzzz888.atabook.org/) 
+## <p align="center">[ˢᵗʳᵃʷ](https://abbyyzzzlovesreitatoritsuka.straw.page) [•](saikiyougoing.peepee) [新}ᵇᵒᵒᵏ](https://abbyzzz888.atabook.org/) 
 
 
 
