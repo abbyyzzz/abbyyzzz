@@ -1,4 +1,4 @@
-## <p align="center"> ![GIF](617966952-c87830ae-187e-40b3-a044-cf8c74c5b952.gif) ![GIF](617966921-2e4ad5e8-8c53-491a-9203-82c4db4b981d.gif)
+## <p align="center"> ![GIF](617966952-c87830ae-187e-40b3-a044-cf8c74c5b952.gif)
 
 
 
