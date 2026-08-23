@@ -1,4 +1,3 @@
-## <p align="center"> ![GIF](617966952-c87830ae-187e-40b3-a044-cf8c74c5b952.gif)
 
 
 
