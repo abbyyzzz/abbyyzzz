@@ -1,4 +1,4 @@
-!abbyyzzz/abbyyzzz
+
 
 
        ⋆. 𐙚 ˚ ᶜᵃᵗᶜʰ ᶜᵃᵗᶜʰ - ʸᵉⁿᵃ
@@ -17,7 +17,7 @@
 
 
 
-## <p align= "center">  𓆩♡𓆪
+## <p align= "center">  ⋆
 
 
     @pt-hall-of-media ʳᵉᶦᵗᵃ ᵗᵒʳᶦᵗˢᵘᵏᵃ
