@@ -1,7 +1,7 @@
 
 
 
-       ⋆. 𐙚 ˚ ᶜᵃᵗᶜʰ ᶜᵃᵗᶜʰ - ʸᵉⁿᵃ
+       ⋆. 𐙚 ˚ ᴰᵃʸ ¹ - ᴿᵉᵈ ⱽᵉˡᵛᵉᵗ
 
 
 
@@ -9,15 +9,15 @@
 
 
 
+<div align="center">
  <sub><sub> 
 ᵃʳᵗ ᶜʳᵉᵈᶦᵗˢ :: @emocg7 ᵒⁿ ˣ! </sub>
 </sub>
-
-
+</div>
 
 <a href="https://abbyyzzzlovesreitatoritsuka.straw.page/home">ˢᵗʳᵃʷ</a> <a href="https://abbyzzz888.atabook.org/">ᵃᵗᵃ</a>   <a href="https://guns.lol/abbyyzzz">ᵍᵘⁿˢ.ˡᵒˡ</a>
 </h4>
-
+</div>
 
 
 
