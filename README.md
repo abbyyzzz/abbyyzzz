@@ -5,11 +5,11 @@
 
 
 
-![mattimage](Untitled12_20260827181513.png) 
+![mattimage](Untitled19_20260827183642.png) 
 
 
 
-<sub><sub> 
+ <sub><sub> 
 ᵃʳᵗ ᶜʳᵉᵈᶦᵗˢ :: @emocg7 ᵒⁿ ˣ! </sub>
 </sub>
 
