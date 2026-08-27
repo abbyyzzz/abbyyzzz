@@ -5,8 +5,13 @@
 
 
 
-
 ![mattimage](Untitled12_20260827181513.png) 
+
+
+
+<sub><sub> 
+ᵃʳᵗ ᶜʳᵉᵈᶦᵗˢ :: @emocg7 ᵒⁿ ˣ! </sub>
+</sub>
 
 
 
