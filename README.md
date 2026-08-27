@@ -6,15 +6,12 @@
 
 
 
-<p float="left">
-  <img src="https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled15_20260820233502.png" width="49%" />
-  <img src="https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled15_20260820233600.png" width="49%" />
-</p>
+![mattimage](Untitled12_20260827181513.png) 
 
 
-## <p align="center">[ˢᵗʳᵃʷ](https://abbyyzzzlovesreitatoritsuka.straw.page) [•](saikiyougoing.peepee) [ᵃᵗᵃ](https://abbyzzz888.atabook.org/) [•](saikiyougoing.peepee) [ᵍᵘⁿˢˡᵒˡ](https://guns.lol/abbyyzzz) 
 
-
+<a href="https://abbyyzzzlovesreitatoritsuka.straw.page/home">ˢᵗʳᵃʷ</a> <a href="https://abbyzzz888.atabook.org/">ᵃᵗᵃ</a>   <a href="https://guns.lol/abbyyzzz">ᵍᵘⁿˢ.ˡᵒˡ</a>
+</h4>
 
 
 
