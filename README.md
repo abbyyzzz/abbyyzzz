@@ -28,7 +28,10 @@
 <details>
 <summary>⠀ ᶦⁿᶠᵒ</summary>   ⠀ ⠀
 
-   ⠀ ⠀ʰᶦᶦ!! ᶜᵃˡˡ ᵐᵉ ᵃᵇᵇʸᶻ/ ᵉˡᶦ/ ᵉᵐᵇᵉʳ/ ᵃⁿʸ ᶠᶦᶜᵗᵏᶦⁿ ⁿᵃᵐᵉ (ᶠᶦᶜᵗᵏᶦⁿˢ ᵃʳᵉ ˢᵖᵉᶜᶦᶠᶦᵉᵈ ᶦⁿ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ) ᴾᴸᶻ ᴾᴸᶻ ᴾᴸˢ ᶠᵒʳ ᵗʰᵉ ˡᵒᵛᵉ ᵒᶠ ᵍᵒᵈ ᶦⁿᵗ ʷᶦᵗʰ ᵐᵉ ᶦᶠ ʸᵒᵘʳ ᶦⁿᵗᵒ ᵈᵉᵃᵗʰ ⁿᵒᵗᵉ, ˢᵃᶦᵏᶦ ᵏ, ᵐᵖ¹⁰⁰ ᵒʳ ᵃⁿʸ ᵒᶠ ᵐʸ ᵐᵃᶦⁿ ᶠᵃⁿᵈᵒᵐˢ. ᴵ ʷᵒᵘˡᵈ ʳˡˡʸ ᵃᵖᵖʳᵉᶜᶦᵃᵗᵉ ᶦᶠ ʸᵒᵘ ᶦⁿᵗ ʷᶦᵗʰ ᵐᵉ ᵃˢ ᴵ ᴸᴼⱽᴱ ᵗᵃˡᵏᶦⁿᵍ ᵗᵒ ᵖᵖˡ ᵒⁿˡᶦⁿᵉ ᵃⁿᵈ ᶦʳˡ!! ʸᵒᵘ ᶜᵃⁿ ᶦⁿᵗ ᵃⁿᵈ ᶜ + ʰ ᶠʳᵉᵉˡʸ ʷʰᵉⁿ ᴵ'ᵐ ʷᶦᵗʰ ᶠʳᶦᵉⁿᵈˢ ᵇᵘᵗ ᵖˡˢ ᵈᵒⁿ'ᵗ ᵗʳʸ ᵗᵒ ʲᵒᶦⁿ ᶜᵒⁿᵛᵉʳˢᵃᵗᶦᵒⁿˢ ᵃⁿᵈ ᵇᵉ ᵃⁿ ᵃᵗᵗᵉⁿᵗᶦᵒⁿ ˢᵉᵉᵏᵉʳ :/ ᴵ ʰᵃᵛᵉ ᵐʸ ᴰᴺᴵ ˡᶦˢᵗ ᶦⁿ ᵐʸ ˢᵗʳᵃʷᵖᵃᵍᵉ ᵇᵘᵗ ᵈʳʸ ᵖᵖˡ, ᶠᵃᵗᵖʰᵒᵇᶦᶜ ᵖᵒⁿᶦᵉˢ ᵃⁿᵈ ᵇˡᵃᶜᵏᶠᵃᶜᵉ ᴰᴺᴵ. ᴼᵗʰᵉʳ ᵗʰᵃⁿ ᵗʰᵃᵗ ᴵ'ᵐ ᵘˢᵘᵃˡˡʸ ᵒⁿ ᶜʳᵘⁿᶜʰʸʳᵒˡˡ, ᵈᵒᶦⁿᵍ ˢᶜʰᵒᵒˡ ʷᵒʳᵏ, ᵈʳᵃʷᶦⁿᵍ, ʷᵃᵗᶜʰᶦⁿᵍ ʸᵗ/ ˡᶦˢᵗᵉⁿᶦⁿᵍ ᵗᵒ ᵐᵘˢᶦᶜ. ᴵᶠ ʸᵒᵘ ʷᵃⁿⁿᵃ ᶦⁿᵗ ʲᵘˢᵗ ʷʰᶦˢᵖᵉʳ ᵐᵉ, ᵐᵒˢᵗ ᵒᶠ ᵗʰᵉ ᵗᶦᵐᵉ ᴵ ᵐᶦᵍʰᵗ ʳᵉˢᵖᵒⁿᵈ ᵏᶦⁿᵈᵃ ᶠᵃˢᵗ ᵃˢ ᴵ'ᵐ ⁿᵒᵗ ʳˡˡʸ ᵈᵒᶦⁿᵍ ᵃⁿʸᵗʰᶦⁿᵍ ᶦᵐᵖᵒʳᵗᵃⁿᵗ ᵒʳ ʲᵘˢᵗ ᵉᵃˢᶦˡʸ ᵈᶦˢᵗʳᵃᶜᵗᵉᵈ ᵇᵘᵗ ᶦᶠ ᴵ ʳᵉˢᵖᵒⁿᵈ ˢˡᵒʷ ᵗʰᵉⁿ ᴵ'ᵐ ᵇᵘˢʸ ᵒʳ ʷᶦᵗʰ ᶠʳᶦᵉⁿᵈˢ. 
+   ⠀ ⠀hii!! call me abbyz/ eli/ ember/ any fictkin name (fictkins are specified in my strawpage) PLZ PLZ PLS for the love of god int with me if your into death note, saiki k, mp100 or any of my main fandoms. I would rlly appreciate if you int with me as I LOVE talking to ppl online and irl!! You can int and c + h freely when I'm with friends but pls don't try to join conversations and be an attention seeker :/ I have my DNI list in my strawpage but dry ppl, fatphobic ponies and blackface DNI. Other than that I'm usually on crunchyroll, doing school work, drawing, watching yt/ listening to music. If you wanna int just whisper me, most of the time I might respond kinda fast as I'm not rlly doing anything but if I respond slow then I'm busy or with friends. 
+  
+   DNC skins or take hvy inspo (light inspo is acceptable) ˃͈◡˂͈
+
   
    ᴰᴺᶜ ˢᵏᶦⁿˢ ᵒʳ ᵗᵃᵏᵉ ʰᵛʸ ᶦⁿˢᵖᵒ (ˡᶦᵍʰᵗ ᶦⁿˢᵖᵒ ᶦˢ ᵃᶜᶜᵉᵖᵗᵃᵇˡᵉ) ˃͈◡˂͈
 ![mattxmelloimage](Untitled12_20260827230354.png) 
