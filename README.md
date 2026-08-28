@@ -35,7 +35,7 @@
 
 <div align="center">
  <sub><sub>
-  ᶠʳᵉᵉ ʸᵃᵒᶦ ˢˡᵒᵖ/ʲ
+  aw so kyute free yaoi slop so kyute/ j
  <sub></sub>
 
 
