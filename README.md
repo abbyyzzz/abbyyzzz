@@ -11,7 +11,7 @@
 
 <div align="center">
  <sub><sub> 
-ᵃʳᵗ ᶜʳᵉᵈᶦᵗˢ :: @emocg7 ᵒⁿ ˣ! </sub>
+ᵃʳᵗ ᶜʳᵉᵈᶦᵗˢ :: @emocg7 ᵒⁿ ˣ ! </sub>
 </sub>
 </div>
 
