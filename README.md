@@ -43,5 +43,16 @@
 
 
 </details>
-#
-<img src="c677989d6d249dcc0e966467711718ff.jpg" width="300%" 
+
+<details>
+<summary>⠀ ᶠᶦᶜᵗᵏᶦⁿˢ/ ᵏᶦⁿˢ</summary>   ⠀ ⠀
+
+  <sub> wip ig but kazuichi, reita, august, kyoko and wtv yare yare
+  </sub>
+  
+  
+
+
+
+</details>
+
