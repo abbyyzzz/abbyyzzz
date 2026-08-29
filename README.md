@@ -43,16 +43,3 @@
 
 
 </details>
-
-<details>
-<summary>⠀ ᶠᶦᶜᵗᵏᶦⁿˢ/ ᵏᶦⁿˢ</summary>   ⠀ ⠀
-
-  <sub> wip ig but kazuichi, reita, august, kyoko and wtv yare yare
-  </sub>
-  
-  
-
-
-
-</details>
-
