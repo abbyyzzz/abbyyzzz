@@ -5,7 +5,7 @@
 
 
 
-![mattimage](https://github.com/abbyyzzz/abbyyzzz/blob/main/Untitled19_20260827183642.png) 
+![mattimage](https://64.media.tumblr.com/6feca152ff04d3aaca8afad538b15734/48d408761508b494-11/s1280x1920/16035850cc3c9d9acea92d812f1961b1915e3913.pnj) 
 
 
 
@@ -34,7 +34,7 @@
   
    ᴰᴺᶜ ˢᵏᶦⁿˢ ᵒʳ ᵗᵃᵏᵉ ʰᵛʸ ᶦⁿˢᵖᵒ (ˡᶦᵍʰᵗ ᶦⁿˢᵖᵒ ᶦˢ ᵒᵏᵃʸ) ˃͈◡˂͈
 
-![mattxmelloimage](Untitled12_20260827230354.png) 
+![mattxmelloimage](https://64.media.tumblr.com/3351b70aac248b7af88c4f0b90cc5fa4/48d408761508b494-65/s1280x1920/ca1c355a12c0033431b7dc2326ce1b82cb5450d2.pnj) 
 
 <div align="center">
  <sub><sub>
