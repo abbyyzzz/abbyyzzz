@@ -34,11 +34,13 @@
   
    ᴰᴺᶜ ˢᵏᶦⁿˢ ᵒʳ ᵗᵃᵏᵉ ʰᵛʸ ᶦⁿˢᵖᵒ (ˡᶦᵍʰᵗ ᶦⁿˢᵖᵒ ᶦˢ ᵒᵏᵃʸ) ˃͈◡˂͈
 
-![mattxmelloimage](https://64.media.tumblr.com/3351b70aac248b7af88c4f0b90cc5fa4/48d408761508b494-65/s1280x1920/ca1c355a12c0033431b7dc2326ce1b82cb5450d2.pnj) 
+<img src="https://64.media.tumblr.com/7a9f2d7c4bd988ad30ff853eaa18a897/c30cbf99af2403d2-37/s1280x1920/4444598cc9243608035b08d621473ada5ec7ce9b.pnj" alt="Image 1" style="width: 49%;">
+<img src="https://64.media.tumblr.com/3e78be6a5802f6ec10b9e1f815e8adc9/c30cbf99af2403d2-c2/s1280x1920/9c3394c86f96709ff71dff7c75a9b8627e3894d3.pnj" alt="Image 2" style="width: 49%;">
+
 
 <div align="center">
  <sub><sub>
-  aw so kyute free yaoi slop so kyute/ j
+  THE cuties ʚଓ
  <sub></sub>
 
 
