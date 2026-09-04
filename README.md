@@ -38,12 +38,8 @@
 
 
 
-<p float="left">
-  <img src="https://64.media.tumblr.com/7a9f2d7c4bd988ad30ff853eaa18a897/c30cbf99af2403d2-37/s1280x1920/4444598cc9243608035b08d621473ada5ec7ce9b.pnj" width="49%" />
-  <img src="https://64.media.tumblr.com/3e78be6a5802f6ec10b9e1f815e8adc9/c30cbf99af2403d2-c2/s1280x1920/9c3394c86f96709ff71dff7c75a9b8627e3894d3.pnj" width="49%" />
-</p>
 
-
+![uwumaster](https://64.media.tumblr.com/9bed58f6bcfc02c865a94b3dab444900/6be6e4f195776a04-97/s500x750/a4a46fe778f0ed5de8a5c0ba3a70e67bde5bcb66.pnj) 
 
 <div align="center">
  <sub><sub>
