@@ -116,6 +116,8 @@
 
 [ʷᵒᵐᵉⁿ ᶠᵒʳ ʷᵒᵐᵉⁿ](https://www.womenforwomen.org/afghanistan-two-years-later) 
 
+[ᴬᶠᵍʰᵃⁿᵃᶦᵈ](https://www.acbar.org/upload/1582535014876.pdf) 
+
 [ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://donate.unwomen.org/en/help-women-in-afghanistan) 
 
 [ᵈᵒⁿᵃᵗᶦᵒⁿ ˡᶦⁿᵏ ²](https://www.sahareducation.org/) 
@@ -123,8 +125,6 @@
 [ᵈᵒⁿᵃᵗᶦᵒⁿ ˡᶦⁿᵏ ³](https://time.com/6322308/how-to-help-afghanistan-earthquake-victims/) 
 
 [ᵈᵒⁿᵃᵗᶦᵒⁿ ˡᶦⁿᵏ ⁴](https://borgenproject.org/operating-in-afghanistan/) 
-
-[ʳᵉˢᵒᵘʳᶜᵉˢ ᵗᵒ ᵈᵒⁿᵃᵗᵉ](https://www.acbar.org/upload/1582535014876.pdf) 
 
   ◇──◆──◇──◆
 
