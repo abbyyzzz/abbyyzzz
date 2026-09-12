@@ -1,16 +1,122 @@
-## Hi there 👋
+<div align="center">
+<a href="https://abbyyzzzlovesreitatoritsuka.straw.page/home">ˢᵗʳᵃʷ</a> <a href="https://abbyzzz888.atabook.org/">ᵃᵗᵃ</a>   <a href="https://guns.lol/abbyyzzz">ᵍᵘⁿˢ.ˡᵒˡ</a>
+</h4>
+</div>
 
-<!--
-**abbyyzzz/abbyyzzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://64.media.tumblr.com/dbb92d567cb4c6881d26c911445695d8/7a96162206785796-6c/s500x750/a25d452628be7b02d432ecf697b8c48b066ddad2.pnj) 
+
+<div align="center">
+ <sup><sup> 
+ ion ship torisai ok.. don't slime me out</sup>
+</sup>
+</div>
+
+
+
+
+<details>
+<summary>⠀ˡᶦⁿᵏˢ ᵗᵒ ʰᵉˡᵖ ᵖᵖˡ</summary>   ⠀ ⠀
+
+  ◇──◆──◇──◆
+
+ ᶠʳᵉᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ::
+
+[ˡᶦⁿᵏᵗʳᵉᵉ](https://linktr.ee/helpoutpalestine)
+
+[ᶜᵃʳʳᵈ ¹](https://free-palestine.carrd.co/) 
+
+[ᶜᵃʳʳᵈ ²](https://savepalestine.carrd.co/) 
+
+[ᵖᶜʳᶠ](https://www.pcrf.net/) 
+
+[ʰᵉᵃˡ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://www.healpalestine.org/) 
+
+[ᵈᵉᶜᵒˡᵒⁿᶦᶻᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://decolonizepalestine.com/) 
+
+[ᵘˢᶜᵖʳ](https://uscpr.org/) 
+
+[ᵘⁿʳʷᵃ](https://www.unrwa.org/) 
+
+[ᶠʳᵉᵉ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://www.freepalestine.net.au/) 
+
+[ʳᵉˢᵒᵘʳᶜᵉ ˡᶦˢᵗ](https://www.analulopez.com/wp-content/uploads/2023/10/FREE-PALESTINE-RESOURCE-LIST.pdf) 
+
+[ᵖᵃˡᵉˢᵗᶦⁿᵉ ᶜᵃᵐᵖᵃᶦᵍⁿ](https://palestinecampaign.org/resources/) 
+
+[ᶠˡᵘᶠᶠˡᵉᶜᶜ](https://fluffle.cc/provide) 
+
+[ᵇᵘᶦˡᵈ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://buildpalestine.com/blog/trusted-organizations-to-donate-to-palestine/) 
+
+[ᶜˡᶦᶜᵏ ᵗᵒ ʰᵉˡᵖ ᴾᵃˡᵉˢᵗᶦⁿᵉ](https://arab.org/click-to-help/palestine/)
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://donate.palestinecampaign.org/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ²](https://donate.unrwa.org/int/en/gaza) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ³](https://crisisrelief.un.org/en/donate-opt-crisis) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁴](https://www.healpalestine.org/donate/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁵](https://www.pcrf.net/donate) 
+
+
+
+
+  ◇──◆──◇──◆
+
+ᴳᵃʸ ᴹᵃʳʳᶦᵃᵍᵉ::
+
+[ᵉᵠᵘᵃˡˡʸʷᵉᵈ](https://equallywed.com/equality-minded-lgbtq-inclusive-wedding-websites/) 
+
+[ᵉⁿᵍᵃʸᵍᵉᵈ ʷᵉᵈᵈᶦⁿᵍˢ](https://www.engaygedweddings.com/) 
+
+[ᵐᵃʳʳᶦᵃᵍᵉ ᵉᵠᵘᵃˡᶦᵗʸ](https://www.marriageequality.org/) 
+
+[ᵐᶦˡᶦᵗᵃʳʸ ᵒⁿᵉ ˢᵒᵘʳᶜᵉ](https://www.militaryonesource.mil/financial-legal/legal/legally-married-same-sex-couples-info/) 
+
+[ᵒᵘʳ ʷᵒʳˡᵈ ᶦⁿ ᵈᵃᵗᵃ](https://ourworldindata.org/grapher/marriage-same-sex-partners-equaldex) 
+
+[ᶠʳᵉᵉᵈᵒᵐ ᵗᵒ ᵐᵃʳʳʸ](https://www.freedomtomarry.org/) 
+
+[ᵘⁿˢᵖᵃˡˢʰ](https://unsplash.com/s/photos/gay-wedding) 
+
+[ᵖᶦˣᵃᵇᵃʸ](https://pixabay.com/images/search/gay%20marriage/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://www.freedomtomarryglobal.org/donate) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ²](https://www.marriageequality.org/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ³](https://afer.org/ways-to-give/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁴](https://give.hrc.org/page/190209/donate/1?locale=en-US) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁵](https://lambdalegal.org/) 
+
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ⁶](https://familyequality.org/) 
+
+
+   ◇──◆──◇──◆
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+WIP I'll add more when I'm not tired
+
+
+
+
+
+</details>
