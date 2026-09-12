@@ -100,17 +100,23 @@
 
    ◇──◆──◇──◆
 
+  ᶠʳᵉᵉ ᴬᶠᵍʰᵃⁿᶦˢᵗᵃⁿ ʷᵒᵐᵉⁿ::
 
+[ʷᵃʷ](https://womenforafghanwomen.org/) 
 
+[ʷᵃʷ ᶦⁿˢᵗᵃ](https://www.instagram.com/womenforafghanwomen/?hl=en) 
 
+[ʳᶦᵍʰᵗ ᵗᵒ ˡᵉᵃʳⁿ](https://righttolearn.ca/) 
 
+[ᴬᶠᵍʰᵃⁿ ʷᵒᵐᵉⁿ](https://afghanwomen.org/) 
 
+[ᴬᶠᵍʰᵃⁿ ʷᵒᵐᵉⁿˢ ᶠᵘⁿᵈ](https://www.afghanwomensfund.org/) 
 
+[ᵐᵃˡᵃˡᵃ](https://malala.org/countries/afghanistan) 
 
+[ʷᵒᵐᵉⁿ ᶠᵒʳ ʷᵒᵐᵉⁿ](https://www.womenforwomen.org/afghanistan-two-years-later) 
 
-
-
-
+[ᵈᵒⁿᵃᵗᵉ ˡᶦⁿᵏ ¹](https://donate.unwomen.org/en/help-women-in-afghanistan) 
 
 
 WIP I'll add more when I'm not tired
