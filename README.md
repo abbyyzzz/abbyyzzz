@@ -6,7 +6,7 @@
 <div align="center">
 
 
-![](https://64.media.tumblr.com/dbb92d567cb4c6881d26c911445695d8/7a96162206785796-6c/s500x750/a25d452628be7b02d432ecf697b8c48b066ddad2.pnj) 
+![](https://64.media.tumblr.com/9908efdca20a46d8fa8da7774f01ecb9/397cba9349f81585-f0/s500x750/285be7216ceea16cb9968c4f94a9af2cef25586b.pnj) 
 
 <div align="center">
  <sup><sup> 
